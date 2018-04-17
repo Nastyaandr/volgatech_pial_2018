@@ -1,1 +1,0 @@
-# volgatech_pial_2018
